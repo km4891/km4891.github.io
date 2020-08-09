@@ -16,9 +16,9 @@ Hori**seo**n is one of fastest growing digital marketing firms out there today. 
  
 Please visit the following links for more information on what Hori**seo**n can do for you
 
-[Search Engine Optimization](https://km4891.github.io/#search-engine-optimization)
-[Online Reputation Management](https://km4891.github.io/#online-reputation-management)
-[Social Media Marketing](https://km4891.github.io/#social-media-marketing)
+* [Search Engine Optimization](https://km4891.github.io/#search-engine-optimization)
+* [Online Reputation Management](https://km4891.github.io/#online-reputation-management)
+* [Social Media Marketing](https://km4891.github.io/#social-media-marketing)
 
 #### Credits
 
